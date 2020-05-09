@@ -1,0 +1,2 @@
+# yazilimci21
+kişisel
